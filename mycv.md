@@ -1,4 +1,5 @@
- Michalis Iosif
+Michalis Iosif
+ 
 Email: michalis.iosif@yahoo.com | Phone: +357 96302858 Nicosia, Cyprus
 Summary
 Experienced and strategic professional with a strong background in digital marketing and management. Founder of Flexjob.com.cy, a booking management platform for freelancers, showcasing entrepreneurial drive and innovation. Skilled in executing digital marketing campaigns, strategic planning, project management, and team leadership. Seeking opportunities in a dynamic entrepreneurial environment to accelerate my journey and drive innovative ventures forward.
