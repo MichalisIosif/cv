@@ -45,7 +45,7 @@ Experienced in executing digital marketing campaigns and strategic planning base
 ### Founder
 
 - **Flexjob.com.cy**, Nicosia, Cyprus  
-  *2021 – Present*  
+  *2021 – 2024*  
   Founded an innovative platform enabling freelancers to sell services and manage bookings efficiently.
 
 ### Sales Assistant
